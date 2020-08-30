@@ -1,1 +1,3 @@
-# vgg
+[Mlem, HYPERS, KKomrade, AMAZIN, LULW, F, DEATH, NoTears, OverRustle, DuckerZ, BibleThump, AngelThump, OOF, SOYBOY, Porki, SmoothBrain, GRUG, CUCKER, HEADSHOT, DANKMEMES, MLADY, YEE, SWEATY, PEPE, widepeepoHappy, TRUMPED, WAITWAT, BERN, PepoThink, FeelsBadMan, HUG, FeelsGoodMan, YEP, FeelsWeirdMan, DJPepo, pepoHug, PepoG, PepoHmm, Pepega, HMMM, HACKERMANS, HUGGERS, POGGIES, COGGERS, EZ, peepoRun, PepeLaugh, PepeMods, PepeMods, REE, monkaS, monkaGun, Wowee, haHAA, gachiGASM, YECH, SLUGEMY, ferretLOL, 4Head, 5Head, BabyRage, WeirdChamp, Pog, POTATO, NotLikeThis, AYAYA, DAB, CLANGGANG, PepoComfy, PepeHands, PepeHands, BOGGED, OMEGALUL, BOOMER, MiyanoHype, NOBULLY, VAYAYA, SMUGGY, NOM, THISISFINE, blobDANCE, VroomVroom, BONK, SLEEPY, YAMERO, GAWSH] 
+
+[pepePants, comfyHYPE, THONKERS, DICKS, peepoGuns, peepoBox, peepoHappy, peepoHands, peepoSad, peepoShook, peepoHmmCoffee, peepoCoffee, peepoHug, peepoChrist, INSOCIETY, CLAP, HONK, peepoFat, STABBY, MILKSHAKE]
